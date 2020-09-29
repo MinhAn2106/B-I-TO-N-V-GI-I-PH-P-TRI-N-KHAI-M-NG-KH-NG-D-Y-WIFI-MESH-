@@ -1,2 +1,2 @@
-# B-I-TO-N-V-GI-I-PH-P-TRI-N-KHAI-M-NG-KH-NG-D-Y-WIFI-MESH-
+# BAI-TOAN-VA-GIAI-PHAP-TRIEN-KHAI-MANG-KHONG-DAY-WIFI-MESH-
 Đồ án lý thuyết môn Hệ thống Viễn Thông
